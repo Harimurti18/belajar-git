@@ -1,1 +1,3 @@
-Belajar bersama-sama dengan semangat
+Belajar bersama-sama dengan semangat.
+
+By : Harimurti
