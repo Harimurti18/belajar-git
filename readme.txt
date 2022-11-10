@@ -1,0 +1,1 @@
+Belajar bersama-sama dengan semangat
